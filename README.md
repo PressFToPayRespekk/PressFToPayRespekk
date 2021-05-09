@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @PressFToPayRespekk
+- 👀 I’m interested in coding and game dev
+- 🌱 I’m currently learning coding and game dev
